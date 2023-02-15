@@ -8,9 +8,9 @@ I'm:
 
 #### My current interests:
 
-- product photography [ig](https://www.instagram.com/tanjarinne) [tumblr](https://tanjarinne.tumblr.com/)
+- product photography [[insta](https://www.instagram.com/tanjarinne)] • [[tumblr](https://tanjarinne.tumblr.com/)]
 - vogue culture
 - cooking
-- coffee [ig](https://www.instagram.com/stories/highlights/18302941831053546/)
+- coffee [[insta](https://www.instagram.com/stories/highlights/18302941831053546/)]
 
 All my links: https://linktr.ee/tanjarinne
