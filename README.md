@@ -9,7 +9,7 @@ I'm:
 #### My current interests:
 
 - running!
-- product photography [[insta](https://www.instagram.com/tanjarinne)] • [[tumblr](https://tanjarinne.tumblr.com/)]
+- product photography [[portfolio](https://tanjarinne.myportfolio.com/)] • [[insta](https://www.instagram.com/tanjarinne)]
 - vogue culture
 - cooking
 - coffee [[insta](https://www.instagram.com/stories/highlights/18302941831053546/)]
